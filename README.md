@@ -19,5 +19,7 @@ I'm now gonna close this out by saying that while I spent forever on this, there
 
 Though, in reviewing the incidents of my surveying, I am unconscious of intentional error, I am nevertheless too sensible of my defects not to think it probable that I may have committed many errors. I shall also carry with me the hope that this community will view them with indulgence ; And that after multiple years of my life dedicated to it's service with an upright zeal, the faults of incompetent abilities will be consigned to oblivion, as I myself must soon be to the mansions of rest.
 
+<img width="368" height="282" alt="Screenshot 2026-09-11 104442" src="https://github.com/user-attachments/assets/4f1289f4-6cd1-4c8a-b1eb-3cfe1784a91b" />
+
 Thank you all for spending the time to read this, if you did.
 -- Evelyn. Also known as RainbowDoesStuff.
