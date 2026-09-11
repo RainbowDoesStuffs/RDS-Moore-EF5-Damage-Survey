@@ -21,5 +21,8 @@ Though, in reviewing the incidents of my surveying, I am unconscious of intentio
 
 <img width="368" height="282" alt="Screenshot 2026-09-11 104442" src="https://github.com/user-attachments/assets/4f1289f4-6cd1-4c8a-b1eb-3cfe1784a91b" />
 
-Thank you all for spending the time to read this, if you did.
+If you wish to use this elsewhere, just credit me and don't paywall it. All rights are reserved.
+
+Thank you all for spending the time to read this, if you did.  
 -- Evelyn. Also known as RainbowDoesStuff.
+
